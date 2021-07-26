@@ -1,0 +1,2 @@
+- 👋 hi, i'm aika! just a girl who loves beat saber and software engineering.
+- 📫 need to contact me? you can reach me on Twitter at `@NotAika_` or on Discord `Aika#3777` or email me at notaika@protonmail.com.
